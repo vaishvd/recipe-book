@@ -14,3 +14,21 @@
 - Add coffee and liqueur to a shallow bowl. Dip the lady fingers in the coffee (Don't soak them--just quickly dip them on both sides to get them wet) and lay them in a single layer on the bottom of an 8x8'' or similar size pan.
 - Smooth half of the mascarpone mixture over the top. Add another layer of dipped lady fingers. Smooth remaining mascarpone cream over the top.\
 - Dust cocoa powder generously over the top (I use a fine mesh strainer to do this). Refrigerate for at least 3-4 hours or up to overnight before serving.
+
+## Nutritional value
+Calories: 297kcal
+Carbohydrates: 26g
+Protein: 5g
+Fat: 18g
+Saturated Fat: 11g
+Polyunsaturated Fat: 1g
+Monounsaturated Fat: 2g
+Cholesterol: 88mg
+Sodium: 77mg
+Potassium: 124mg
+Fiber: 1g
+Sugar: 11g
+Vitamin A: 618IU
+Vitamin C: 1mg
+Calcium: 90mg
+Iron: 1mg
