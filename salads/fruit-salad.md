@@ -9,6 +9,7 @@
 - 1 banana, sliced
 - 1 apple, cored and chopped
 - 1 orange, peeled and sectioned
+- Jogurt (optional)
 - Juice of 1 lime or lemon (to prevent the fruit from browning and to add a bit
   of zing)
 - Fresh mint leaves (optional, for garnish)
@@ -25,7 +26,7 @@
    - Peel and section the orange.
 
 2. **Mix the Fruits:**
-   - In a large bowl, gently mix all the prepared fruits together.
+   - In a large bowl, gently mix all the prepared fruits together. Add jogurt optionally
 
 3. **Add Citrus Juice:**
    - Squeeze the juice of one lime or lemon over the mixed fruits. This not
